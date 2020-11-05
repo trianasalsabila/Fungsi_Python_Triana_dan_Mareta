@@ -1,0 +1,1 @@
+# Fungsi_Python_Triana_dan_Mareta
